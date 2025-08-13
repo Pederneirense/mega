@@ -1,2 +1,0 @@
-# mega
-Lista de Canais
